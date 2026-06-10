@@ -1,4 +1,3 @@
-# balajiphysict
 # Hi, I'm Balaji R 👋
  
 **B.Sc. Physics Student | AI & Astrophysics Enthusiast | Researcher**
